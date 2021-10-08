@@ -1,7 +1,3 @@
-“Your tenderness and sensitivity are unparalleled in this metaphysical world!” 这难道是Bot007读后感么？！ :-)
-
-史蒂芬.平克好牛叉，回头好好拜读一下他的大作，谢谢推荐！
-
 ***潜在危害：***
 
 马斯克一直说自己是“Pro human" 恐惧AI 控制人类（https://www.youtube.com/watch?v=9jkRcrM6XKA） ， 所以他要推动宇宙飞船，以防万一AI或者Global warming 会将人类赶紧杀绝， 他赶忙加紧研究了NeuralLink  (https://neuralink.com/science/)  推动发展人机结合的步伐，让芯片与AI来对人类做些治疗：“成瘾、强迫症、抑郁症、大脑损伤、渐冻症、大脑信息写入、治疗疾病，进行矫正” 
