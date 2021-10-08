@@ -4,7 +4,7 @@
 
 ***潜在危害：***
 
-马斯克一直说自己是“Pro human" 恐惧AI 控制人类（https://www.youtube.com/watch?v=9jkRcrM6XKA） ， 所以他要推动宇宙飞船，以防万一AI或者Global warming 会将人类赶紧杀绝， 他赶忙加紧研究了NeuralLink  (https://neuralink.com/science/)推动发展人机结合的步伐，让芯片与AI来对人类做些治疗：“成瘾、强迫症、抑郁症、大脑损伤、渐冻症、大脑信息写入、治疗疾病，进行矫正” 
+马斯克一直说自己是“Pro human" 恐惧AI 控制人类（https://www.youtube.com/watch?v=9jkRcrM6XKA） ， 所以他要推动宇宙飞船，以防万一AI或者Global warming 会将人类赶紧杀绝， 他赶忙加紧研究了NeuralLink  (https://neuralink.com/science/)  推动发展人机结合的步伐，让芯片与AI来对人类做些治疗：“成瘾、强迫症、抑郁症、大脑损伤、渐冻症、大脑信息写入、治疗疾病，进行矫正” 
 
 到底是NeuralLink 在控制人类，还是人类在控制NeuralLink ？ 不知道NeuralLink 是不是在与他的意图南辕北辙，还是真正的知行合一（哈哈）
 
